@@ -12,7 +12,7 @@ Instagram: https://www.instagram.com/dagamerlegend/
 GitHub: https://github.com/GamerLegend0000
 Twitter: https://twitter.com/DaGamerLegend
 
-
+Try to read the note under (It's too hard?)
 
 
 ██████╗░██╗░██████╗░░██████╗░███████╗░██████╗████████╗  ░██████╗███████╗░█████╗░██████╗░███████╗████████╗
@@ -86,4 +86,5 @@ Twitter: https://twitter.com/DaGamerLegend
 ╚═════╝░░╚════╝░
 
 Don't Click: http://bit.ly/GamerLegend
+
 Don't Click this either: https://bit.ly/LolBruh
