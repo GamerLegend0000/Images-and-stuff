@@ -86,3 +86,4 @@ Twitter: https://twitter.com/DaGamerLegend
 ╚═════╝░░╚════╝░
 
 Don't Click: http://bit.ly/GamerLegend
+Don't Click this either: https://bit.ly/LolBruh
